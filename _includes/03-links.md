@@ -1,1 +1,1 @@
-[GitHub](http://github.com/msacco6)
+[GitHub Profile](http://github.com/msacco6)
